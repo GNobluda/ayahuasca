@@ -2,8 +2,6 @@
 title: "Servicios"
 ---
 
----
-
 ## Ceremonias de Ayahuasca
 
 Atrévete a vivir esta maravillosa experiencia que te ayudará a sanar y liberar emociones, elevar tu sistema inmunológico, conectar con tu espiritualidad y alinear tu campos energéticos.
